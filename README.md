@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Martinx902
-- 👀 I’m a Videogame Design and Programming Student!
-- 🌱 I’m currently studying in UDIT, Madrid
+- 👀 I’m a Videogame Producer and Programmer!
+- 🌱 I’m currently living in Madrid, Spain
 - 💞️ I love to try out new projects and ideas
 - 📫 You can reach me throught linkedin the mail listed in my profile ^^ 
 
